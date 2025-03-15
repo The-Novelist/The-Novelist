@@ -1,9 +1,10 @@
  ![Image](https://github.com/user-attachments/assets/04c19458-c1b9-4916-97a8-ae88d9bc6b9f)
 ------------------
- ♡ Frank/Mason . Adult .&nbsp;</em>- <a href="https://the-novelist.straw.page/" id="">GF Strawpage</a> - <a href="wip" id="">MHA Strawpage</a> - ★ <em>anime enthusiast</em></p>
+ ♡ Frank/Mason . Adult .&nbsp;</em>- <a href="https://the-novelist.straw.page/" id="">GF Strawpage</a> - <a href="https://the-novelistt.straw.page/" id="">MHA Strawpage</a> - ★ <em>anime enthusiast</em></p>
 
 ► &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
+ <em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
 
 <span style="font-family: courier new,courier;">｡ :; &quot;Love &amp; Peace&quot;</span><strong><span style="font-family: courier new,courier;">:;<em>♡</em></span><em><span style="font-family: courier new,courier;">♡</span></em></strong></strong>
 </p>
