@@ -4,7 +4,7 @@
 
 ► &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
- <em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
+
 
 <span style="font-family: courier new,courier;">｡ :; &quot;Love &amp; Peace&quot;</span><strong><span style="font-family: courier new,courier;">:;<em>♡</em></span><em><span style="font-family: courier new,courier;">♡</span></em></strong></strong>
 </p>
