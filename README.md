@@ -1,3 +1,5 @@
+![Visitor Count](https://profile-counter.glitch.me/{The-Novelist}/count.svg)
+
 ![Image](https://github.com/user-attachments/assets/1141bbef-501b-4d0c-aa9f-0d916045846d)
 
 ------------------
