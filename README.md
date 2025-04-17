@@ -5,8 +5,9 @@
 ------------------
  ♡ Frank/Mason . He/Him.  Adult .&nbsp;- </em><a href="https://rentry.co/YEAAAAHHH" id="">Rentry</a> - <a href="https://www.patreon.com/c/potatochips_/about" id="">Patreon (Just used as another about section)</a> - ★ <em>anime enthusiast</em></p>
 
-► &nbsp;whisp2int</strong>
+ᡣ𐭩 . &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
+ ꨄ Interests : MHA, TRIGUN, ONE PIECE , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list
 ------------------
 
 ![Image](https://github.com/user-attachments/assets/bf487376-0d2b-4fd1-aabc-e714995baac5)
