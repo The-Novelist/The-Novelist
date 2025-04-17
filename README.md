@@ -1,16 +1,18 @@
 ![Visitor Count](https://profile-counter.glitch.me/{The-Novelist}/count.svg)
 
-![Image](https://github.com/user-attachments/assets/1141bbef-501b-4d0c-aa9f-0d916045846d)
+<p style="text-align: justify;"><em>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/002734e3-e8b1-4e35-8566-462d716ee334" class="fr-fic fr-dib" width="1880" height="344.712"></p>
+
 
 ------------------
  ♡ Frank/Mason . He/Him.  Adult .&nbsp;- </em><a href="https://rentry.co/YEAAAAHHH" id="">Rentry</a> - <a href="https://www.patreon.com/c/potatochips_/about" id="">Patreon (Just used as another about section)</a> - ★ <em>anime enthusiast</em></p>
 
 ᡣ𐭩 . &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
- ꨄ Interests : MHA, TRIGUN, ONE PIECE , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list.
-------------------
+<p><span style="font-family: courier new,courier;">
+ ꨄ Interests : MHA, TRIGUN, ONE PIECE , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list.</span></p>
 
-![Image](https://github.com/user-attachments/assets/bf487376-0d2b-4fd1-aabc-e714995baac5)
+------------------
+<p style="text-align: justify;"><em>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/73a6671a-9cbd-4a0d-ade0-ba9a75eae0cb" class="fr-fic fr-dib" width="1880" height="544.712"></p>
 
 <span style="font-family: courier new,courier;">｡ :; &quot;Love &amp; Peace&quot;</span><strong><span style="font-family: courier new,courier;">:;<em>♡</em></span><em><span style="font-family: courier new,courier;">♡</span></em></strong></strong>
 </p>
