@@ -11,7 +11,7 @@
 ᡣ𐭩 . &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
 <p><span style="font-family: courier new,courier;">
- ꨄ Interests : MHA, TRIGUN, ONE PIECE , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list.</span></p>
+ ꨄ Interests : MHA, TRIGUN, ONE PIECE, DEMON SLAYER , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list.</span></p>
 
 ------------------
 <p style="text-align: justify;"><em>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/73a6671a-9cbd-4a0d-ade0-ba9a75eae0cb" class="fr-fic fr-dib" width="1480" height="444.712"></p>
