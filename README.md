@@ -24,5 +24,13 @@ The basic dni criteria, such as if you are a proshipper, weirdo, ect. If you are
 <P>
 
 ![Image](https://github.com/user-attachments/assets/1830f8d4-eaf2-4015-a6f4-7b937deea88f)
-
 ![Image](https://github.com/user-attachments/assets/31fbd55b-6ac7-4166-84f8-a24f51783362)
+![Image](https://github.com/user-attachments/assets/efffb53c-0628-4869-a2b8-8cb86926793a)
+
+![Image](https://github.com/user-attachments/assets/783b8516-df80-4021-b849-785b016e9104)
+![Image](https://github.com/user-attachments/assets/4e449af0-347e-4c13-b556-5c245b167418)
+![Image](https://github.com/user-attachments/assets/f631f259-b00e-4104-8af2-d3932e46bc17)
+
+![Image](https://github.com/user-attachments/assets/5c7fa8ef-a64d-4c0e-9ff6-21401a31928b)
+![Image](https://github.com/user-attachments/assets/df8ad163-066e-4b0b-a6a1-4bf4dc583189)
+![Image](https://github.com/user-attachments/assets/bf472474-9a9b-4542-a23f-19c25a209f9c)
