@@ -6,7 +6,7 @@
  <p align="center">
  <h4 align="center"
  </a> <br>
- ♡ Frank/Mason . He/Him.  Adult .&nbsp;- </em><a href="https://rentry.co/YEAAAAHHH" id="">Rentry</a> - <a href="https://www.patreon.com/c/potatochips_/about" id="">Patreon (Just used as another about section)</a> - ★ <em>anime enthusiast</em></p>
+ ♡ Frank/Mason . He/Him.  Adult .&nbsp;- </em><a href="https://rentry.co/bvezntzh" id="">Rentry</a> - <a href="https://www.patreon.com/c/potatochips_/about" id="">Patreon (Just used as another about section)</a> - ★ <em>anime enthusiast</em></p>
 
 ᡣ𐭩 . &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
