@@ -10,6 +10,7 @@
 
 ᡣ𐭩 . &nbsp;whisp2int</strong>
 	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
+ ᡣ𐭩 .Can be seen with my friends all around the pony town map !! I move around alot. I'm a pretty chill guy, so feel free to INT if we share the same interests. </strong>
 <p><span style="font-family: courier new,courier;">
  ꨄ Interests : MHA, TRIGUN, ONE PIECE, DEMON SLAYER , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list.</span></p>
 
