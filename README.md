@@ -1,37 +1,23 @@
-![Visitor Count](https://profile-counter.glitch.me/{The-Novelist}/count.svg)
-
-<p style="text-align: justify;"><em>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/893b8c6c-bcf9-40d4-acdd-83753e4e63cd" class="fr-fic fr-dib" width="1880" height="244.712"></p>
 
 </a>
  <p align="center">
  <h4 align="center"
- </a> <br>
- ♡ Frank/Mason . He/Him.  Adult .&nbsp;- </em><a href="https://rentry.co/bvezntzh" id="">Rentry</a> - <a href="https://www.patreon.com/c/potatochips_/about" id="">Patreon (Just used as another about section)</a> - ★ <em>anime enthusiast</em></p>
+	  </a> YO ! what's up ? I'm Frank but you can also call me Mason !  <br>
+	  </a> I'm an Adult and use mostly He/Him pronouns .  <br>
+	   </a> I'm just a cartoon and anime loving dude ,  i'm pretty chill so feel free to INT if we have the same Interests .  <br>
+	 <P>-</P>
+ </a> ¦⟫ C + h friendly. Unless dntuf is in name. dntuf = do not touch my pony unless friend / on friend list .  <br>
+  </a> ¦⟫ w2I offtab / afk often + I leave my pony up while I sleep or am off my laptop . <br>
+  </a> ¦⟫ DNI If you are under 16. <br>
+  <P></P>
+	
+  
+	 
+![Image](https://github.com/user-attachments/assets/f244e3ec-c4eb-4d8e-a675-2b9e91910531)
 
-ᡣ𐭩 . &nbsp;whisp2int</strong>
-	<em>I&#39;m offtab often. <strong>C + H</strong> friendly no need to ask.&nbsp;</em></p>
- ᡣ𐭩 .Can be seen with my friends all around the pony town map !! I move around alot. I'm a pretty chill guy, so feel free to INT if we share the same interests. </strong>
-<p><span style="font-family: courier new,courier;">
- ꨄ Interests : MHA, TRIGUN, ONE PIECE, DEMON SLAYER , GF , JJK, SONIC , DC , FNAF , BLUEY + more i'm too lazy to list.</span></p>
+![Visitor Count](https://profile-counter.glitch.me/{The-Novelist}/count.svg)
 
-------------------
-<p style="text-align: justify;"><em>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/03ed3963-6b31-49bc-97bb-13993ab67a1d" class="fr-fic fr-dib" width="1480" height="444.712"></p>
 
-<span style="font-family: courier new,courier;">｡ :; &quot;Love &amp; Peace&quot;</span><strong><span style="font-family: courier new,courier;">:;<em>♡</em></span><em><span style="font-family: courier new,courier;">♡</span></em></strong></strong>
-</p>
+[sign my atabook <3](https://the-novelist.atabook.org/)
 
-DNI:
-The basic dni criteria, such as if you are a proshipper, weirdo, ect. If you are under 16. if you are a HH/HB fan. I block/hide freely, I also have 0 patience for rude people or people who spread misinformation, you will be hidden without a second thought. Keep me out of fandom drama.
-<P>
 
-![Image](https://github.com/user-attachments/assets/1830f8d4-eaf2-4015-a6f4-7b937deea88f)
-![Image](https://github.com/user-attachments/assets/31fbd55b-6ac7-4166-84f8-a24f51783362)
-![Image](https://github.com/user-attachments/assets/efffb53c-0628-4869-a2b8-8cb86926793a)
-
-![Image](https://github.com/user-attachments/assets/783b8516-df80-4021-b849-785b016e9104)
-![Image](https://github.com/user-attachments/assets/4e449af0-347e-4c13-b556-5c245b167418)
-![Image](https://github.com/user-attachments/assets/f631f259-b00e-4104-8af2-d3932e46bc17)
-
-![Image](https://github.com/user-attachments/assets/5c7fa8ef-a64d-4c0e-9ff6-21401a31928b)
-![Image](https://github.com/user-attachments/assets/df8ad163-066e-4b0b-a6a1-4bf4dc583189)
-![Image](https://github.com/user-attachments/assets/bf472474-9a9b-4542-a23f-19c25a209f9c)
