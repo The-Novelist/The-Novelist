@@ -18,6 +18,6 @@
 ![Visitor Count](https://profile-counter.glitch.me/{The-Novelist}/count.svg)
 
 
-[sign my atabook <3](https://the-novelist.atabook.org/)
+
 
 
