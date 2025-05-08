@@ -2,6 +2,9 @@
 </a>
  <p align="center">
  <h4 align="center"
+
+  [Sign my atabook <3](https://the-novelist.atabook.org/) <P>
+  [Draw on my strawpage <3](https://thenovelistq.straw.page/) <P>
 	  </a> YO ! what's up ? I'm Frank but you can also call me Mason !  <br>
 	  </a> I'm an Adult and use mostly He/Him pronouns .  <br>
 	   </a> I'm just a cartoon and anime loving dude ,  i'm pretty chill so feel free to INT if we have the same Interests .  <br>
